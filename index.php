@@ -1,3 +1,1 @@
-<?php
-?>
-Everthing is wonderful :-)
+Everthing is wonderful :-) :-P
