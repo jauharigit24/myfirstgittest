@@ -1,1 +1,1 @@
-Everthing is wonderful :-) :-P
+Everthing is wonderful :-)  :-P
